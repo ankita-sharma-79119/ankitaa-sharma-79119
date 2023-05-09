@@ -1,4 +1,4 @@
-# ankitaa-sharma-79119
+# ankita-sharma-79119
 
 I am Ankita Sharma, a sofware developer with more than seven years of comprehensive 
 expertise in the IT industry. My journey in software development began with a deep 
